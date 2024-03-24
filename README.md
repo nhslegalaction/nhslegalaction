@@ -1,5 +1,7 @@
 ### Cryptographic repo for logging legal action against NHS  👋
 
+![](https://raw.githubusercontent.com/nhslegalaction/nhslegalaction/main/fictional-nhs-slanders/20130924.jpg)
+
 <!--
 **nhslegalaction/nhslegalaction** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
