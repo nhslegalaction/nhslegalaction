@@ -1,5 +1,7 @@
 ### Cryptographic repo for logging legal action against NHS  👋
 
+![](https://raw.githubusercontent.com/nhslegalaction/nhslegalaction/main/requirements-for-lawyer/requirements-for-lawyer.jpg)
+
 ![](https://raw.githubusercontent.com/nhslegalaction/nhslegalaction/main/fictional-nhs-slanders/20130924.jpg)
 ![](https://raw.githubusercontent.com/nhslegalaction/nhslegalaction/main/fictional-nhs-slanders/20131025_1.jpg)
 ![](https://raw.githubusercontent.com/nhslegalaction/nhslegalaction/main/fictional-nhs-slanders/20131025_2.jpg)
