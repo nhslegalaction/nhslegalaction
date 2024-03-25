@@ -4,6 +4,8 @@
 
 ![](https://raw.githubusercontent.com/nhslegalaction/nhslegalaction/main/requirements-for-lawyer/requirements-for-lawyer.jpg)
 
+![](https://raw.githubusercontent.com/nhslegalaction/nhslegalaction/main//profiles-of-doctors/Fictional-NHS-psychiatric-records-The-creative-writing-skills-of-Dr-Cornish-Dr-Parsonage-and-Dr-Bevan-Google-Photos.png)
+
 ## Monday 25th March 2024
 
 ![](https://raw.githubusercontent.com/nhslegalaction/nhslegalaction/main/melbury-lodge-winchester/20240325-dr-pippa-north-authorised-forcible-injection-including-aripiprazole-retinal-detachment-blindness.png)
