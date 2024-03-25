@@ -8,6 +8,20 @@
 
 ## Monday 25th March 2024
 
+My Apple laptop which is still under AppleCare until March 2025 is conveniently having a lot of serious problems in the last few days. I am having bizarre problems with git revision control which I use to converse with Github. 
+
+The ffmpeg tool appears to be transcoding random audio files instead of what I am trying to actually convert and upload. The ffmpeg tool is now generating media files which are corrupted in terms of rendered totally useless and cannot be played back. 
+
+I had to upload a wav file because it is no longer possible to convert to opus. I cannot record any audio on Audacity because the ssd drive keeps having several gigabytes of space being filled up in minutes when nothing is actually happening on my laptop.
+
+On a Linux device, these bizarre behaviours would immediately be identified as some kind of malware infection.
+
+Apple is proprietary so you cannot really know how to protect yourself since you do not have any control or access to the source code.
+
+I intend to switch to a Spanish-built KDE Linux Slimbook laptop as soon as I am able to.
+
+I am being forced to keep a written account of events because I have no electronic devices left which work correctly; iPhone, iPad, Apple laptop.
+
 ![](https://raw.githubusercontent.com/nhslegalaction/nhslegalaction/main/melbury-lodge-winchester/20240325-dr-pippa-north-authorised-forcible-injection-including-aripiprazole-retinal-detachment-blindness.png)
 
 ![](https://raw.githubusercontent.com/nhslegalaction/nhslegalaction/main/fictional-nhs-slanders/20130924.jpg)
