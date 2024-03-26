@@ -57,7 +57,7 @@ Alluding to “homosexuality”
 
 “paedophilia”
 
-All of the abuse started towards me within a short space on time.
+All of the abuse started towards me within a short space of time.
 
 I didn’t provoke any of this.
 
