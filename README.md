@@ -8,6 +8,9 @@
 
 ## Tuesday 26th March 2024
 
+@11:46am
+I have just discovered that I have 14 days to appeal my incarceration but I do not have anyone who can help me to find a decent lawyer who can actually help me. The 14 day deadline is really convenient for the NHS psychiatrists who have locked me up inside their high security prison.
+
 @11:13am
 I have been denied basic healthcare for my Athlete’s Foot condition on both feet again this morning. My own Daktarin cream is not being given to me. When I tell reception that I need the cream and mention discomfort from being denied my own medicine I am told that they need a doctor to prescribe it to me.
 
