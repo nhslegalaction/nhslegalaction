@@ -16,6 +16,8 @@ I am doing an experiment to see if I can learn AI whilst I am being forcibly inj
 
 By idiots who would fail GCSE Mathematics let alone have any idea what Artificial Intelligence is, or how it even works...
 
+![](https://raw.githubusercontent.com/nhslegalaction/nhslegalaction/main/studying-artificial-intelligence-whilst-incarcerated-in-melbury-lodge/karparthy-building-micrograd.png)
+
 ## Monday 25th March 2024
 
 My Apple laptop which is still under AppleCare until March 2025 is conveniently having a lot of serious problems in the last few days. I am having bizarre problems with git revision control which I use to converse with Github. 
