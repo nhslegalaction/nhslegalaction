@@ -6,6 +6,16 @@
 
 ![](https://raw.githubusercontent.com/nhslegalaction/nhslegalaction/main//profiles-of-doctors/Fictional-NHS-psychiatric-records-The-creative-writing-skills-of-Dr-Cornish-Dr-Parsonage-and-Dr-Bevan-Google-Photos.png)
 
+## Tuesday 26th March 2024
+
+Despite being continuously kicked off the NHS free WiFi... I managed to pair my phone and download the first Karparthy lesson about neural networks...
+
+I have plenty of caffeine and I enjoy Artificial Intelligence.
+
+I am doing an experiment to see if I can learn AI whilst I am being forcibly injected with pharma meds in my backside against my will...
+
+By idiots who would fail GCSE Mathematics let alone have any idea what Artificial Intelligence is, or how it even works...
+
 ## Monday 25th March 2024
 
 My Apple laptop which is still under AppleCare until March 2025 is conveniently having a lot of serious problems in the last few days. I am having bizarre problems with git revision control which I use to converse with Github. 
