@@ -8,6 +8,10 @@
 
 ## Tuesday 26th March 2024
 
+#fitnessmotivation #fitnessjourney #fitnesslifestyle #motivation #homeworkout #chloeting #chloetingchallenge #chloetingabschallenge #healthylifestyle #transformation #jayz 
+
+![](https://raw.githubusercontent.com/nhslegalaction/nhslegalaction/main/incarceration-journal/20240326-negotiation-for-chloe-ting-abs-workout-whilst-incarcerated.png)
+
 Despite being continuously kicked off the NHS free WiFi... I managed to pair my phone and download the first Karparthy lesson about neural networks...
 
 I have plenty of caffeine and I enjoy Artificial Intelligence.
