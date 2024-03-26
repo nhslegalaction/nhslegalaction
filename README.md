@@ -8,6 +8,10 @@
 
 ## Tuesday 26th March 2024
 
+My iPhone has been unable to really switch on or run any apps since I ended up in Melbury Lodge. Today WhatsApp has completely stopped working on all my devices.
+
+![](https://raw.githubusercontent.com/nhslegalaction/nhslegalaction/main/incarceration-journal/20240326-whatsapp-stopped-working-on-all-my-devices.png)
+
 I am starting to try to connect with any lawyers in London via LinkedIn but I also borrowed the reception phone and I promised to let them take it back from me whenever they need it back.
 
 ![](https://raw.githubusercontent.com/nhslegalaction/nhslegalaction/main/incarceration-journal/20240326-AMOY-NOEL-mocked-my-CSR-condition-insta.png)
