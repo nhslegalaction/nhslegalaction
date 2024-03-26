@@ -8,6 +8,13 @@
 
 ## Tuesday 26th March 2024
 
+@11:13am
+I have been denied basic healthcare for my Athlete’s Foot condition on both feet again this morning. My own Daktarin cream is not being given to me. When I tell reception that I need the cream and mention discomfort from being denied my own medicine I am told that they need a doctor to prescribe it to me.
+
+I already told my mother that they do not honour their agreements. I told my mother that I need a verbal call with her twice a day to confirm that the cream is on my feet. So I will try to ring my mother now.
+
+---
+
 My iPhone has been unable to really switch on or run any apps since I ended up in Melbury Lodge. Today WhatsApp has completely stopped working on all my devices.
 
 ![](https://raw.githubusercontent.com/nhslegalaction/nhslegalaction/main/incarceration-journal/20240326-whatsapp-stopped-working-on-all-my-devices.png)
