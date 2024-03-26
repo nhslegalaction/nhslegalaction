@@ -8,6 +8,22 @@
 
 ## Tuesday 26th March 2024
 
+I am starting to try to connect with any lawyers in London via LinkedIn but I also borrowed the reception phone and I promised to let them take it back from me whenever they need it back.
+
+![](https://raw.githubusercontent.com/nhslegalaction/nhslegalaction/main/incarceration-journal/20240326-AMOY-NOEL-mocked-my-CSR-condition-insta.png)
+
+I just narrowly avoided being forcibly injected with Aripiprazole because I very quickly posted the bloodshot eye caused by that pharma torture drug onto insta along with some medical research papers and the written letter from an NHS eye consultant about my eye.
+
+Before I posted this onto insta; Amoy Noel was mocking my CSR eye condition and she actually laughed at me.
+
+Right before she left my prison cell to go and get the syringe she gave me a weird smile and said “you agreed to take the tablet”.
+
+I am being continuously told that I have agreed to fictional stories which are being read back to me from the NHS medical records. It is literally an hourly or daily occurance that another fabrication is being added that I agreed, consented to something I totally rejected.
+
+It is really quite bizarre to see this behaviour.
+
+---
+
 In the last 24 hours I am receiving bizarre psychotic abuse…
 
 From several male patients…
