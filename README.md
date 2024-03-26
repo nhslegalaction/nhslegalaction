@@ -8,6 +8,9 @@
 
 ## Tuesday 26th March 2024
 
+@11:49am
+At breakfast today a girl called Alicia told me that there is a lady on the ward today who can help me. But I have no idea how to speak to this lady who is here to help people legally. Nobody on my ward is willing to forward my name to this unknown lady who is offering advice. I have made it clear for several days that I want help to find my own legal representation. As usual the staff on this ward do not honour any contracts. They deliberately do everything they can to block you seeking your own legal help which is not on their preselected list which has been provided.
+
 @11:46am
 I have just discovered that I have 14 days to appeal my incarceration but I do not have anyone who can help me to find a decent lawyer who can actually help me. The 14 day deadline is really convenient for the NHS psychiatrists who have locked me up inside their high security prison.
 
