@@ -8,6 +8,9 @@
 
 ## Tuesday 26th March 2024
 
+@17:14pm
+I was kindly brought the Daktarin cream very shortly after I woke up from a sleep. Also another support staff member waited several minutes because I was feeling slightly uncomfortable about another male patient who continuously made derogatory remarks about my religious and personally intellectually chosen faith.
+
 @12:25pm
 Today I finally received my own key for my prison cell. For many days I had to walk all the way to reception to get back into my prison cell. But now that I have a key for my prison cell; I have placed it in the back of my phone case and I can come and go freely between my prison cell and the sitting area.
 
