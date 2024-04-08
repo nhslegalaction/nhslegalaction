@@ -33,11 +33,9 @@ My iPhone has been unable to really switch on or run any apps since I ended up i
 
 I am starting to try to connect with any lawyers in London via LinkedIn but I also borrowed the reception phone and I promised to let them take it back from me whenever they need it back.
 
-![](https://raw.githubusercontent.com/nhslegalaction/nhslegalaction/main/incarceration-journal/20240326-AMOY-NOEL-mocked-my-CSR-condition-insta.png)
-
 I just narrowly avoided being forcibly injected with Aripiprazole because I very quickly posted the bloodshot eye caused by that pharma torture drug onto insta along with some medical research papers and the written letter from an NHS eye consultant about my eye.
 
-Before I posted this onto insta; Amoy Noel was mocking my CSR eye condition and she actually laughed at me.
+Before I posted this onto insta; [redacted] was mocking my CSR eye condition and she actually laughed at me.
 
 Right before she left my prison cell to go and get the syringe she gave me a weird smile and said “you agreed to take the tablet”.
 
