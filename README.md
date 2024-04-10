@@ -105,8 +105,6 @@ I intend to switch to a Spanish-built KDE Linux Slimbook laptop as soon as I am 
 
 I am being forced to keep a written account of events because I have no electronic devices left which work correctly; iPhone, iPad, Apple laptop.
 
-![](https://raw.githubusercontent.com/nhslegalaction/nhslegalaction/main/melbury-lodge-winchester/20240325-dr-pippa-north-authorised-forcible-injection-including-aripiprazole-retinal-detachment-blindness.png)
-
 ![](https://raw.githubusercontent.com/nhslegalaction/nhslegalaction/main/fictional-nhs-slanders/20130924.jpg)
 ![](https://raw.githubusercontent.com/nhslegalaction/nhslegalaction/main/fictional-nhs-slanders/20131025_1.jpg)
 ![](https://raw.githubusercontent.com/nhslegalaction/nhslegalaction/main/fictional-nhs-slanders/20131025_2.jpg)
